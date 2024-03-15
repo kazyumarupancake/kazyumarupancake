@@ -2,6 +2,7 @@
 - 👀 My mainly occupation is a photographer.📸
 - 🌱 I’m currently working in the training office for disabilities.
 - 💞️ And, I'm a disability too.
+You can contact to me, kazyumarupancake@gmail
 
 <!---
 kazyumarupancake/kazyumarupancake is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
