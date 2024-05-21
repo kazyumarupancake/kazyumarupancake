@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kazyumarupancake
 - 👀 My mainly occupation is a photographer.📸
-- 🌱 I’m currently a trainer where disabilities train to get their jobs.
+- 🌱 I’m currently a trainer where a welfare office that disabilities train to get their jobs.
 - 💞️ And, I'm a disability too.
 You can contact to me, kazyumarupancake@gmail
 
