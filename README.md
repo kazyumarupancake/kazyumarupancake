@@ -13,3 +13,7 @@ You can click the Preview link to take a look at your changes.
 - TypeScript 3y<.
 - HTML 5y<.
 - English *y<.
+
+
+My photo skill is that I got the reward "published at 1x".
+I was a cram school(Juku) teacher for over 15y.
